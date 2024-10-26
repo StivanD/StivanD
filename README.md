@@ -4,7 +4,7 @@
 - 📫 You can reach me at: **stivand27@gmail.com** or the social medias I've linked
 
 - 📄 I graduated from the **National Vocational School of Computer Technologies and Systems** in Pravets and I'm currently studying **Computer Science** in New Bulgarian University
-- ⚡ Fun facts: **I love hiking, tattoos and arm wrestling**
+- ⚡ Fun facts: **I love hiking and arm wrestling**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
